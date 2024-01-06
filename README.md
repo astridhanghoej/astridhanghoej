@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @astridhanghoej
-- 👀 I’m interested in programming, knitting and gardening.
+- 👀 I’m interested in programming, knitting, handspinning and gardening.
 - 🌱 I’m currently reviving my love of OLS.
 - 💞️ I teach at VIA University College.
 - 📫 You can find me on LinkedIn
